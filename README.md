@@ -1,4 +1,4 @@
-# 0xluo.github.io
+# 0xLuo
 
 Twitter: [https://twitter.com/0xLuo](https://twitter.com/0xLuo)  <br> 
 Bluesky: [https://bsky.app/profile/luo.bsky.social](https://bsky.app/profile/luo.bsky.social)  <br> 
